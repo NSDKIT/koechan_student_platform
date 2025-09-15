@@ -1,1 +1,0 @@
-# koechan_student_platform
